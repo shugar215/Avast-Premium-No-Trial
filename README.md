@@ -1,0 +1,1 @@
+# Avast-Premium-No-Trial
